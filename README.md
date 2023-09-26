@@ -1,7 +1,5 @@
 Canada
 
-Canada 
-
 NAZI SYMPATHIZING:
 
 “Canada House speaker apologizes for recognition of veteran who fought for Nazis
