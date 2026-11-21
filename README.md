@@ -73,7 +73,8 @@ https://en.m.wikipedia.org/wiki/None_Is_Too_Many
 
 https://www.jta.org/1997/06/05/lifestyle/canada-knowingly-admitted-ss-members-after-world-war-ii
 
-GENOCIDES: 
+
+GENOCIDE OF INDIGENOUS PEOPLES
 
 https://www.coastmountainnews.com/news/legal-historian-makes-case-smallpox-was-intentional-biological-warfare/
 
