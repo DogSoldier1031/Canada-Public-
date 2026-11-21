@@ -1,8 +1,8 @@
 CANADIAN MAPLE-WASHING
+
 -----------------------
-
 GENOCIDE & SEGREGATION 
-
+-----------------------
 
 “Jessica McDiarmid, Highway of Tears: A True Story of Racism, Indifference, and the Pursuit of Justice for Missing and Murdered Indigenous Women and Girls”
 
@@ -38,9 +38,9 @@ https://en.wikipedia.org/wiki/Africville
 
 
 
-
+--------------
 HONORING NAZIS
-
+--------------
 
 “The RCAF Officer Who Brought Hitler’s Waffen SS to Canada…
 
@@ -68,8 +68,9 @@ https://m.youtube.com/watch?v=SjQqplzoZDc&ra=m
 
 https://en.wikipedia.org/wiki/Yaroslav_Hunka_scandal
 
-
+-------------------------
 SINOPHOBIA & EXPLOITATION 
+-------------------------
 
 “The Chinese Head Tax was a fixed fee exclusively charged to Chinese persons entering Canada. The Head Tax was first levied after the Canadian parliament passed the Chinese Immigration Act of 1885, and it was designed solely to restrict Chinese immigration after the completion of the Canadian Pacific Railway (CPR), through the use of escalating fees. This policy was a state-sanctioned agreement meant to privilege and favour European settlers, while exploiting people of color and making it economically unfeasible for Chinese people to immigrate to Canada”
 
