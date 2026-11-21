@@ -3,6 +3,7 @@ CANADIAN MAPLE-WASHING
 
 GENOCIDE & SEGREGATION 
 
+
 “Jessica McDiarmid, Highway of Tears: A True Story of Racism, Indifference, and the Pursuit of Justice for Missing and Murdered Indigenous Women and Girls”
 
 https://www.euppublishing.com/doi/10.3366/cfs.2022.0063
@@ -39,6 +40,7 @@ https://en.wikipedia.org/wiki/Africville
 
 
 HONORING NAZIS
+
 
 “The RCAF Officer Who Brought Hitler’s Waffen SS to Canada…
 
