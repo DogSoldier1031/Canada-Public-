@@ -1,5 +1,7 @@
 CANADIAN MAPLE-WASHING
 
+
+
 GENOCIDE & SEGREGATION 
 
 “Jessica McDiarmid, Highway of Tears: A True Story of Racism, Indifference, and the Pursuit of Justice for Missing and Murdered Indigenous Women and Girls”
