@@ -1,6 +1,5 @@
 CANADIAN MAPLE-WASHING
-
-
+-----------------------
 
 GENOCIDE & SEGREGATION 
 
