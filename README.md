@@ -1,4 +1,4 @@
-Canada & Maple-Washing
+CANADIAN MAPLE-WASHING
 
 GENOCIDE & SEGREGATION 
 
